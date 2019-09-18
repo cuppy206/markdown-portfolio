@@ -1,0 +1,15 @@
+# Here is a list of my favorite movies
+- Empire Records
+- Reality Bites
+- Easy A
+- Moonrise Kingdom
+- The Royal Tenenbaums
+- Hick
+- Blast From the Past
+- Sunshine Cleaning
+- The Fantastic Mr. Fox
+- Lilo & Stitch
+- Deidra & Laney Rob a Train
+- Laggies
+- Wristcutters
+- Pirates of the Caribbean
